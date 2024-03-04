@@ -8,4 +8,7 @@
 - 
 - 🤔 I’m looking for help with styles 🤣🥴
 - 
-- 📫 How to reach me mail : schielsantino@gmail.com | cellphone: 2954301528 | LinkedIn: https://www.linkedin.com/in/santino-schiel-800a9a296/
+- 📫 How to reach me mail :
+- schielsantino@gmail.com
+- cellphone: 2954301528
+- LinkedIn: https://www.linkedin.com/in/santino-schiel-800a9a296/
