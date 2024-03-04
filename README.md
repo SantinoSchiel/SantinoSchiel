@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on personal proyects for family and friends 😄🙌
 - 
 - 🌱 I’m currently learning some react-native and improving my styles since the backend attracts me more 😅
